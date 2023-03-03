@@ -1,4 +1,3 @@
-# foxcryptoanarchy.github.io 
 
 
 AI- ZIVOT POD LAMPOU
